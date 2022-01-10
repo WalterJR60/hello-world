@@ -8,3 +8,4 @@ Esperanto Step By Step
 Down The Mean Streets
 The Bible
 Box Like The Pros
+![headshot] (Hillari at 60.jpeg)
